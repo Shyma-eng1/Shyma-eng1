@@ -72,7 +72,7 @@ Expected Graduation: 2028
 
 ## 🤝 Connect With Me
 
-- **LinkedIn:** [Shymaa Mohamed](https://linkedin.com/in/shymaa-mohamed)
+- **LinkedIn:** [Shymaa Mohamed](https://www.linkedin.com/in/shymaa-mohamed-7a3973245?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 - **Email:** [1shymamohamed1@gmail.com](mailto:1shymamohamed1@gmail.com)
 
 ---
